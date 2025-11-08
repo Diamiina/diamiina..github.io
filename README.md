@@ -1,1 +1,1 @@
-# diamiina..github.io
+# diamiina.github.io
